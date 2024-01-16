@@ -4,8 +4,7 @@
 </p>
 
 <ins>**dni**</ins> general dni
-
-<ins>**int**</ins> **csm** flcl, umineko, higurashi **history/geography**, __[music](https://last.fm/user/ihatememphis)__, **touhou**, nichijou, azumanga, mlp, metal gear solid, <br>**guilty gear**, scott pilgrim, trigun, devil may cry, bandori, postal, silent hill, south park, sonic, resident evil, __[roblox](https://www.roblox.com/users/1464732036/profile)__ ![](https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763)
+<br><ins>**int**</ins> **csm** flcl, umineko, higurashi **history/geography**, __[music](https://last.fm/user/ihatememphis)__, **touhou**, nichijou, azumanga, mlp, metal gear solid, <br>**guilty gear**, scott pilgrim, trigun, devil may cry, bandori, postal, silent hill, south park, sonic, resident evil, __[roblox](https://www.roblox.com/users/1464732036/profile)__ ![](https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763)
 
 <p align="center">
   <img src="https://64.media.tumblr.com/ce40b1e00a70e4f0c5f37db858951f1b/3e577acf25d91de7-07/s250x400/484b821b9054ed956938ec467ebc3a5fde6f4500.gifv">
