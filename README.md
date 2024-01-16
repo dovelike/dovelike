@@ -1,10 +1,4 @@
-<p align="center"> 
-   <img src="https://gifcity.carrd.co/assets/images/gallery75/73eac686.gif">&nbsp; &nbsp; &nbsp; <ins><b>ma</b></ins>risa
-  <br><img src="https://64.media.tumblr.com/d98a048c1f4e6e69191822206ea07588/b7c29d91d3f6db3c-1a/s75x75_c1/91c8aed83a6e19a759ae2fe5b0116681c73787c7.gifv">
-</p>
-
-<ins>**dni**</ins> general dni
-<br><ins>**int**</ins> **csm** flcl, umineko, higurashi **history/geography**, __[music](https://last.fm/user/ihatememphis)__, **touhou**, nichijou, azumanga, mlp, metal gear solid, <br>**guilty gear**, scott pilgrim, trigun, devil may cry, bandori, postal, silent hill, south park, sonic, resident evil, __[roblox](https://www.roblox.com/users/1464732036/profile)__ <img src="https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763" height=18>
+<p align="center">[pony.town info](https://sntry.cc/☭)<img src="https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763" height=18></p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/ce40b1e00a70e4f0c5f37db858951f1b/3e577acf25d91de7-07/s250x400/484b821b9054ed956938ec467ebc3a5fde6f4500.gifv">
