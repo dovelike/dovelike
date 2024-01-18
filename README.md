@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.ibb.co/g3L6fzR/Wow.jpg" height=310>
+  <img src="https://i.ibb.co/g3L6fzR/Wow.jpg" height=270>
   <br><a href="https://sntry.cc/☭">pony.town info</a> <img src="https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763" height=18></p>
 
 <p align="center">
