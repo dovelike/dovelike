@@ -1,6 +1,7 @@
 <p align="center">
   <img src="https://i.ibb.co/g3L6fzR/Wow.jpg" height=270>
-  <br><a href="https://sntry.cc/☭">pony.town info</a> <img src="https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763" height=18></p>
+  <br><a href="https://sntry.cc/☭">sntry</a>ㅤㅤ<a href="https://rentry.co/fratricides">rentry</a><img src="https://xyz.crd.co/assets/images/gallery11/ebeae1bf.gif?v=4ca63763" height=18>
+</p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/ce40b1e00a70e4f0c5f37db858951f1b/3e577acf25d91de7-07/s250x400/484b821b9054ed956938ec467ebc3a5fde6f4500.gifv">
