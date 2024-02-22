@@ -6,6 +6,6 @@
   <img src="https://gifcity.carrd.co/assets/images/gallery25/dc5ad13b.gif">
   <img src="https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif">
   <img src="https://gifcity.carrd.co/assets/images/gallery23/e5475b61.gif">
-  <br><sub>formerly <b>@ghettocupid</b> . . .</sub>
+  <br><u><sub>formerly <b>@ghettocupid</b> . . .</sub></u>
 </p>
 
