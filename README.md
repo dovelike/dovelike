@@ -1,7 +1,9 @@
-<p align="center">
-  <br><img src="https://pixels.crd.co/assets/images/gallery28/b669d243.gif" height=18 alt="coffin">
+<p align=center>
+  <i>
+    you'd love my bed.
+    <br>you took the other instead
+    <br>but don't <a href="https://open.spotify.com/track/3RQkyuFw2g9aLw0bqNatE0?si=3f21a906989f4a7a">you</a> feel low?<br>
+  </i>
   <br><b><a href="https://pastes.cc/crest">bundlrs</a></b> 
-  <br><sub>formerly <i><b>@ghettocupid</b></i> . . .</sub>
-  <br><br><img src="https://pix.crd.co/assets/images/gallery13/cffe1b81.png" title="TOMOEEEE MY LUV" alt="tomoe">
 </p>
 
