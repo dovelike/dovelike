@@ -3,9 +3,6 @@
   <br><b><a href="https://pastes.cc/crest">bundlrs</a></b>ㅤ<a href="https://rentry.co/fratricides">rentry</a>ㅤ 
 </p>
 <p align="center">
-  <img src="https://gifcity.carrd.co/assets/images/gallery25/dc5ad13b.gif">
-  <img src="https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif">
-  <img src="https://gifcity.carrd.co/assets/images/gallery23/e5475b61.gif">
   <br><sub>formerly <i><b>@ghettocupid</b></i> . . .</sub>
 </p>
 
